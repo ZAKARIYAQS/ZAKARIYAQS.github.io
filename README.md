@@ -1,1 +1,1 @@
-# ZAKARIYAQS.github.io
+ZAKARIYAQS.github.io
