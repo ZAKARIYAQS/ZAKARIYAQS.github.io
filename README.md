@@ -1,1 +1,1 @@
-yopgames1.github.com
+yopgames.github.com
